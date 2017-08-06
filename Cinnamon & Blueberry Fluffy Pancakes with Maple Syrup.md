@@ -4,23 +4,23 @@
 
 #### Dry
 
-180 g of self raising flour
-1 tsp of baking powder
-1 tsp of ground cinnamon
-1 tbsp of brown sugar
-1 pinch of salt
+* 180 g of self raising flour
+* 1 tsp of baking powder
+* 1 tsp of ground cinnamon
+* 1 tbsp of brown sugar
+* 1 pinch of salt
 
 #### Wet
 
-1 large egg
-300 ml of milk
-1tsp of vanilla extract
-2 table spoons of melted butter
+* 1 large egg
+* 300 ml of milk
+* 1tsp of vanilla extract
+* 2 table spoons of melted butter
 
 #### Miscellaneous
 
-1 pack of blue berries (e.g. ~250g)
-1 bottle of maple syrup
+* 1 pack of blue berries (e.g. ~250g)
+* 1 bottle of maple syrup
 
 ## Mixing
 
